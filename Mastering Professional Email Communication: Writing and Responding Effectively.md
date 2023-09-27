@@ -1,6 +1,6 @@
-![](https://www.freepik.com/free-vector/send-email-concept_5727443.htm#query=email%20wirting&position=3&from_view=search&track=ais)
+![Email](https://img.freepik.com/free-vector/send-email-concept_24908-60315.jpg?size=626&ext=jpg&uid=R31815792&ga=GA1.2.949058714.1685514350&semt=ais)
 ***
-Introduction
+# Introduction
 
 In today's digital age, email has become the cornerstone of professional communication. Whether you're in the corporate world, a student, or an entrepreneur, knowing how to write and reply to emails professionally is a valuable skill. Your email correspondence reflects your professionalism and can leave a lasting impression on colleagues, clients, or potential employers. In this blog, we will explore essential tips on how to compose and respond to emails professionally.
 
